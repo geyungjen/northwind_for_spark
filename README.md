@@ -38,12 +38,3 @@ For more information about open source project at codeplex.com, please visit:
 
 https://archive.codeplex.com/
 
-
-
-
-
-Thank you!
-
-
-
-Jen Tek LLC
